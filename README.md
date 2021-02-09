@@ -1,1 +1,0 @@
-# kaurvali.github.io
